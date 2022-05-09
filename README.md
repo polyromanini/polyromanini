@@ -1,0 +1,4 @@
+- 👋 Olá sou a professora Polyanna Romanini meu contato nas redes @polyromanini
+- 👀 Estou aprendendo a programar no SCRATCH ..
+- 🌱 Tenho curiosidades de aprender páginas de intenet
+- 📫 Você pode entrar em contato comigo por polyanna.romanini@escola.pr.gov.br 
