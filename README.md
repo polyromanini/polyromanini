@@ -1,4 +1,4 @@
 - 👋 Olá sou a professora Polyanna Romanini meu contato nas redes @polyromanini
-- 👀 Estou aprendendo a programar no SCRATCH ..
-- 🌱 Tenho curiosidades de aprender páginas de intenet
+- 👀 Sou Professora de Pensamento Computacional e Matemática do Colégio Monteiro Lobato/ Colorado-PR
+- 🌱 "A simplicidade é a maior sofisticação"
 - 📫 Você pode entrar em contato comigo por polyanna.romanini@escola.pr.gov.br 
